@@ -8,5 +8,5 @@ The apparent appreciation of assets like real estate, when measured in U.S. doll
 [YouTube](https://youtu.be/-6WHzKK1yd0?si=KJ6Ko9-Eztym2oA_)  
 
 **Geopolitics and Geoeconomics**  
-A wide-ranging review of the massive changes underway in the global economy and our entire civilization framework.
+A wide-ranging review of the massive changes underway in the global economy and our entire civilization framework.  
 [YouTube](https://www.youtube.com/playlist?list=PLuVwkgWKgz-x-H5EK7EUcNsSnZ06FiUtw)
