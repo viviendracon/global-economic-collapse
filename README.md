@@ -5,6 +5,7 @@ For additional viewing:
 
 **What if the last 40 years of growth were an illusion? | The True Size of Government and Implications**  
 The practice of hidden, debt-financed government employment obscures true national economic sustainability and productivity by inflating GDP through borrowing, systematically misrepresenting the true size of the government workforce, and masking declining productive capacity behind an appearance of prosperity.
+
 [YouTube](https://youtu.be/7iS3PIrNFqk)  
   
 **The Great Housing Deception**  
